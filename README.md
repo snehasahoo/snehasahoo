@@ -19,6 +19,6 @@ wip...
 - See codes: GitHub
 - Read Blogs: Medium   
 - Connect with me: Instagram<5000 Twitter LinkedIn Facebook Pinterest Quora 
-⚡ Fun fact: Bioinformatics is a hybrid science who with married with Computers for speed :P                         
+- ⚡ Fun fact: Bioinformatics is a hybrid science who with married with Computers for speed :P                         
                                                                    
                                                                 
