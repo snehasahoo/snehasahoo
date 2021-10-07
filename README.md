@@ -9,7 +9,16 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about Drawing and paintings
-- 📫 How to reach me: [instagram](https://instagram.com/snehasahoo97)
+- 📫 How to reach me: [Instagram](https://instagram.com/snehasahoo97)
 - 😄 Pronouns: her/she
-- ⚡ Fun fact: ...
 
+
+wip...
+- Support my work: Buy me a coffee
+- Learn Bioinformatics for Free: Subscribe<100 (SnehaSahoo)
+- See codes: GitHub
+- Read Blogs: Medium   
+- Connect with me: Instagram<5000 Twitter LinkedIn Facebook Pinterest Quora 
+⚡ Fun fact: Bioinformatics is a hybrid science who with married with Computers for speed :P                         
+                                                                   
+                                                                
