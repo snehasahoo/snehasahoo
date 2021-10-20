@@ -13,12 +13,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: her/she
 
 
-wip...
+wip....
 - Support my work: Buy me a coffee
 - Learn Bioinformatics for Free: Subscribe<100 (SnehaSahoo)
 - See codes: GitHub
 - Read Blogs: Medium   
 - Connect with me: Instagram<5000 Twitter LinkedIn Facebook Pinterest Quora 
 - ⚡ Fun fact: Bioinformatics is a hybrid science who with married with Computers for speed :P                         
-                                                                   
-                                                                
+- For more information stay tuned :)                                                     
