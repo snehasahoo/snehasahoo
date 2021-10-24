@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: her/she
 
 
-wip....
+work in progress....
 - Support my work: Buy me a coffee
 - Learn Bioinformatics for Free: Subscribe<100 (SnehaSahoo)
 - See codes: GitHub
